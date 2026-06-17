@@ -90,8 +90,8 @@ Estudante de Gestão da Tecnologia da Informação e apaixonada por desenvolvime
 ### Contato
 
 * GitHub: https://github.com/GinaAguiar
-* LinkedIn: (adicione seu LinkedIn)
-* Instagram: @ginaaguiar.work
+* LinkedIn: www.linkedin.com/in/gina-aguiar-708055235
+* E-mail: ginaaguiar.work@gmail.com
 
 ---
 
